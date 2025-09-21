@@ -1,1 +1,1 @@
-salam qaqa
+salam qaqaw
